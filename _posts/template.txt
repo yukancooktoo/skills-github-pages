@@ -1,0 +1,11 @@
+#rename to YYYY-MM-DD-title.md
+---
+#title: "in the quotation marks"
+#date: YYYY-MM-DD
+---
+
+#![Image desc](/yukans-recipes/images/title/image_name.jpg)
+
+#Visit the instagram post <a href="instagram link here">here!</a>
+
+#text here
