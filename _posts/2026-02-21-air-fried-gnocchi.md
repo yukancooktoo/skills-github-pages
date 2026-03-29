@@ -9,7 +9,7 @@ Visit the instagram post <a href="https://www.instagram.com/yukancooktoo/p/DVBZ4
 
 Two in one recipe! Lucky you. This is an Air-Fried Gnocchi stir fry mixed with tofu and bean fritters. A triple fried mix of textures and flavors that make for an interesting but simple weeknight meal. Air-fried Gnocchi has an almost tough texture, like sourdough crust. I really like it, but I can see some people with bad teeth turning this away. Recipe for fritters her. Comments have instructions for Gnocchi and how to make the sauce I did
 
-Tofu and bean fritters
+**Tofu and bean fritters**
 
 250g Extra firm tofu
 250g (drained) Canned Butter/Cannelli beans
@@ -26,7 +26,7 @@ Neutral oil
 6. Coat the base of a pan with oil on a medium heat. Once it comes to temperature, carefully add the fritters to the pan. After two minutes or so, it should release from the pan easily and be slightly charred/golden on one side. Flip and let the other side cook before removing
 7. Taste one for salt. If not salty enough, hit with a dash of salt
 
-Notes:
+_Notes:_
 1. I use butter/cannelli beans because of their wet pasty texture when mashed and close-to-meaty flavor. You can use any other bean you prefer.
 2. For spices: I used a mix of pepper, mild curry powder, and kashmiri chili
 3. This is a pretty simple fritter recipe. You can add add vegetables like sliced onion, cabbage, chilli, etc. Get creative!
@@ -35,14 +35,14 @@ Notes:
 6. You could also make a GF flour slurry, dip the fritter in it then fry. Be careful when dipping into the batter so the fritter doesnt break
 
 
-Air fried Gnocchi
+**Air fried Gnocchi**
 
 -Dunk store bought Gnocchi straight out of the packet in the air frier for 10 minutes at 200C. Thats it! It should have a slightly golden exterior, if not, keep cooking.
 -If you want to have it on its own, toss with oil and seasonings before hand. This isnt needed when its gonna be mixed with a sauce
 -You dont have to boil the gnocchi! I tried boiling then cooking versus straight out the packet, and they were very similar. The boiled one might have an every so slightly softer centre, but its not worth it
 -Gluten free Gnocchi exists, but I've never tried
 
-Stir fried Gnocchi - Uses ~150g storebought gnocchi
+**Stir fried Gnocchi** - Uses ~150g storebought gnocchi
 1. On a pan on high heat, add a little oil and quickly scramble an eggs. Set aside (optional)
 2. Add half an onion, thinly sliced, with a little salt. Toss until the exterior browns
 3. Add a tablespoon of thai red curry paste and mix with the onions. Add two tablespoons of cream/coconut cream and mix. It should bubble vigorously and eventually split into oil and caramelized solids
