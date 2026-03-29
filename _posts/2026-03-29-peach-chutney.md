@@ -15,5 +15,3 @@ The added complexity comes from a simple temper with typical south indian ingred
 Note that because this is a salt ferment, I didn't bother adding any. Indeed, it turned out just fine. After sampling and keeping in my fridge for a couple days, the sweet edge has rounded out giving an incredibly interesting and balanced chutney!
 
 One thing I would've improved is the ingredient quality. The peaches I used were overripe ones from the Woolies odd box, which were quite watery and devoid of peach flavor. The fresh ones were better, but not the kind of peaches I'd normally eat.
-
-#ferment #lactoferment #microbes #bacteria #peach #chutney #spicy #balance
