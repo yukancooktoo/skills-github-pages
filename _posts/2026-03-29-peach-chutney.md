@@ -3,7 +3,7 @@ title: "Lactofermented Peach Chutney - A general guide to lactofermented chutney
 date: 2026-03-29
 ---
 
-![Image of my lactofermented peach chutney](/yukans-recipes/images/Front_image.jpg)
+![Image of my lactofermented peach chutney](/yukans-recipes/images/1_peach_chutney.jpg)
 
 This fermented peach chutney was a very interesting experiment in taking my lactoferments to the next level. I often eat them as is, or blend them to make a simple sauce. This time, I fermented some peaches as a base for a a temper to make a complex and versatile peach chutney. This isnt a recipe like my other posts, moreso a blog.
 
