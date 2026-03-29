@@ -12,6 +12,7 @@ Two in one recipe! Lucky you. This is an Air-Fried Gnocchi stir fry mixed with t
 **Tofu and bean fritters**
 
 250g Extra firm tofu
+
 250g (drained) Canned Butter/Cannelli beans
 3-4 tbsp Spices of your choosing
 6 tbsp flour (GF works)
