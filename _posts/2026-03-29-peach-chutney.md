@@ -5,6 +5,8 @@ date: 2026-03-29
 
 ![Image of my lactofermented peach chutney](/yukans-recipes/images/1_peach_chutney.jpg)
 
+Visit the instagram post <a href="https://www.instagram.com/p/DWdN2aqkx6i/">here!</a>
+
 This fermented peach chutney was a very interesting experiment in taking my lactoferments to the next level. I often eat them as is, or blend them to make a simple sauce. This time, I fermented some peaches as a base for a a temper to make a complex and versatile peach chutney. This isnt a recipe like my other posts, moreso a blog.
 
 I started by lactofermenting diced peaches in a brine with a little chili and ginger at 2% salt (added 2% weight of all ingredients + water in salt). This sat under my bed for 2 weeks, the peaches became a lot mushier and lost their peach flavor which was retained in the brine. I'll be using the brine so this isnt an issue. The spice from the chili became homogenous throughout the ferment, and of course you get a strong lactic acid tang.
