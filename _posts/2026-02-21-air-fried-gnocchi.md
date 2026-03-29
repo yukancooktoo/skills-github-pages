@@ -37,10 +37,10 @@ _Notes:_
 
 **Air fried Gnocchi**
 
--Dunk store bought Gnocchi straight out of the packet in the air frier for 10 minutes at 200C. Thats it! It should have a slightly golden exterior, if not, keep cooking.
--If you want to have it on its own, toss with oil and seasonings before hand. This isnt needed when its gonna be mixed with a sauce
--You dont have to boil the gnocchi! I tried boiling then cooking versus straight out the packet, and they were very similar. The boiled one might have an every so slightly softer centre, but its not worth it
--Gluten free Gnocchi exists, but I've never tried
+- Dunk store bought Gnocchi straight out of the packet in the air frier for 10 minutes at 200C. Thats it! It should have a slightly golden exterior, if not, keep cooking.
+- If you want to have it on its own, toss with oil and seasonings before hand. This isnt needed when its gonna be mixed with a sauce
+- You dont have to boil the gnocchi! I tried boiling then cooking versus straight out the packet, and they were very similar. The boiled one might have an every so slightly softer centre, but its not worth it
+- Gluten free Gnocchi exists, but I've never tried
 
 **Stir fried Gnocchi** - Uses ~150g storebought gnocchi
 1. On a pan on high heat, add a little oil and quickly scramble an eggs. Set aside (optional)
