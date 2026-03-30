@@ -5,21 +5,21 @@ date: 2026-01-05
 
 ![Tempered rice image](/yukans-recipes/images/tempered-rice/1_tempered_rice.jpg)
 
-Visit the instagram post <a href="https://www.instagram.com/yukancooktoo/p/DUFhg3Uk3_5/">here!</a>
+Visit the instagram post <a href="https://www.instagram.com/yukancooktoo/p/DUFhg3Uk3_5">here!</a>
 
 This is a simple Tamil style tempered rice recipe that I brought to a potluck! This was served with peanuts, curd, and Tofu sambal. This recipe is incredible to make and highly customizable, but uses ingredients that aren't kitchen staples for many around the world. Its an all too familiar feeling for the amateur cook when they cook something unique, only to end up with various almost-full ingredients that won't see another use. Today I'm not just sharing a recipe, but ingredients that you may not be familiar with and how you can incorporate them into your daily life.
 
--125g Raw rice (see notes)
--2 tbsp Peanuts (skin on) (subs. pre-roasted peanuts) (optional)
--1 tbsp Black mustard seeds (subs. Dijon mustard)
--2 tsp Turmeric
--2 tsp Asafoetida
--1 tsp Black pepper
--1 tbsp Urad Dal
--1 tbsp Ginger
--1 large chili (subs. chili flakes/powder)
--1 stalk curry leaves
--Black pepper
+- 125g Raw rice (see notes)
+- 2 tbsp Peanuts (skin on) (subs. pre-roasted peanuts) (optional)
+- 1 tbsp Black mustard seeds (subs. Dijon mustard)
+- 2 tsp Turmeric
+- 2 tsp Asafoetida
+- 1 tsp Black pepper
+- 1 tbsp Urad Dal
+- 1 tbsp Ginger
+- 1 large chili (subs. chili flakes/powder)
+- 1 stalk curry leaves
+- Black pepper
 
 1. Cook the rice with a pinch of salt. If using white rice, cook with a little less water than normal so it stays al dente (only a slight bite in the center, not raw)
 2. In a small pot, add oil until it reaches about an inch from the base. Heat on medium (until ~140C). Add the peanuts and stir occasionally. Remove and dry on paper towels when the outside is brown but the inside tastes a little raw.
