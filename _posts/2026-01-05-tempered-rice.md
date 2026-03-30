@@ -1,9 +1,9 @@
 ---
 title: "Simple tempered rice"
-#date: 2026-01-05
+date: 2026-01-05
 ---
 
-#![Image desc](/yukans-recipes/images/title/image_name.jpg)
+![Tempered rice image](/yukans-recipes/images/tempered-rice/1_tempered_rice.jpg)
 
 Visit the instagram post <a href="https://www.instagram.com/yukancooktoo/p/DUFhg3Uk3_5/">here!</a>
 
